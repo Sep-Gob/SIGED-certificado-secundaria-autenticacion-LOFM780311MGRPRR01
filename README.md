@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LOFM780311MGRPRR01
+LOFM780311MGRPRR01
